@@ -1,2 +1,4 @@
 # programmeer-opdrachten
-Een manier o de opdrachten te delen zonder teams
+Een manier om de opdrachten te delen zonder teams
+
+https://tinyurl.com/mjcxjsc6
